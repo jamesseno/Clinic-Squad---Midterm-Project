@@ -1,1 +1,0 @@
-# Clinic-Squad---Midterm-Project
